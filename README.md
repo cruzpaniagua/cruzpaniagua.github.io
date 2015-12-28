@@ -1,2 +1,1 @@
-[cruzpaniagua.github.io](cruzpaniagua.github.io)
-Personal website of Cruz M. Gibson-Paniagua
+[cruzpaniagua.github.io](https://cruzpaniagua.github.io)
