@@ -1,1 +1,1 @@
-[cruzpaniagua.github.io](https://cruzpaniagua.github.io)
+[www.cruzp.com](https://cruzp.com)
